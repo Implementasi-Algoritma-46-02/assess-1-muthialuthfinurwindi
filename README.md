@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Muthia Luthfi Nurwindi 
 
-NIM : 
+NIM : 607062400027
 
 ## Instruksi
 
